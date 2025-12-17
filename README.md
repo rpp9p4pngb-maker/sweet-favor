@@ -1,7 +1,7 @@
 # 🎶 Sweet favor
 
-A cute website built with love 💖  
-Sweet, simple, and made to bring a smile to someone special ✨ 
+A cute website built for saira 💖  
+Sweet, simple, and made to bring a smile for my rasmalai 😭✨ 
 
 ---
 
